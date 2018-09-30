@@ -1,6 +1,6 @@
 9/2/18, 9/15/18, 9/23/18:
 
-Haslanger, Sally. 2000. ``Gender and Race: (What) Are They? (What) Do We Want Them To Be?'' *Noûs* 34:1 (March 2000): 31--55.
+Haslanger, Sally. 2000. ``Gender and Race: (What) Are They? (What) Do We Want Them To Be?''. *Noûs* 34:1 (March 2000): 31--55.
 <http://www.mit.edu/~shaslang/papers/WIGRnous.pdf>
 
 To be read & discussed:
