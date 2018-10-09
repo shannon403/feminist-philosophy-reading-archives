@@ -8,4 +8,5 @@ Haslanger, Sally. 2000. ``Gender and Race: (What) Are They? (What) Do We Want Th
 Mikkola, Mari. 2016. ``The Gender Controversy.'' In her *The Wrong of Injustice: Dehumanization and its Role in Feminist Philosophy*, 21--44. New York: Oxford University Press.
 
 10/21/18 or 10/22/18, 10/27/18 or 10/28/18:
+
 Stoljar, Natalie. 2011. ``Different Women. Gender and the Realism-Nominalism Debate.'' In *Feminist Metaphysics: Explorations in the Ontology of Sex, Gender and the Self*, edited by Charlotte Witt, 27--46. Dordrecht: Springer.
