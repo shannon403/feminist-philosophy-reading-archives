@@ -5,7 +5,7 @@ Haslanger, Sally. 2000. ``Gender and Race: (What) Are They? (What) Do We Want Th
 
 10/7/18, 10/13/18 or 10/14/18:
 
-Mikkola, Mari. 2016. ``The Gender Controversy.'' In her *The Wrong of Injustice: Dehumanization and its Role in Feminist Philosophy*, 21--44. New York: Oxford University Press.
+Mikkola, Mari. 2016. ``The Gender Controversy.'' In her *The Wrong of Injustice: Dehumanization and Its Role in Feminist Philosophy*, 21--44. New York: Oxford University Press.
 
 10/21/18 or 10/22/18, 10/27/18 or 10/28/18:
 
